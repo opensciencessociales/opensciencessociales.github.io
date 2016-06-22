@@ -1,1 +1,0 @@
-# opensciencessociales.github.io
